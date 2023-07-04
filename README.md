@@ -1,2 +1,2 @@
-What's happening 
+What's happening
 
